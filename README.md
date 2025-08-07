@@ -12,3 +12,4 @@ then they tell us how the collage contributes in education society. (it plays a 
 I feel so special for being a part of this reputated collage that time.
 after their speech . 
 ### Then the Chief Guest, **S. Maheshinder Singh Grewal**, Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust, asked us to be disciplined to succeed in life and motivated us to be a good student and asked us to respect our teachers and gave us a very good education by sharing our life experiences and to respect our families.
+### Then after this ceremony, we were all taken to the classrooms of our respective departments where our branch teachers taught us our subjects and then took us to show us the labs. Then after this Saturday, the first day of our induction program ended and we had our leave.
